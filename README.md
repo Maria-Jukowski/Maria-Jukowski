@@ -7,12 +7,6 @@
 
 
 
-
-
-
-
-
-![](https://giphy.com/gifs/cartoon-rainbow-spongebob-SKGo6OYe24EBG)
-
+![](https://giphy.com/gifs/popcorn-television-cartoon-u5BzptR1OTZ04)
 
 
