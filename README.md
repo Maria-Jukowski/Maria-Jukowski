@@ -1,5 +1,1 @@
-- 👋 Hi, I’m @Maria-Jukowski
-
-
-![]
-(https://images.app.goo.gl/Zg67nxPzbCZZyGQJ6)
+![](https://giphy.com/gifs/sponge-bob-rOEvmLAxxcE1i)
