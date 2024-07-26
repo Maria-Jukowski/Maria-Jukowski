@@ -1,1 +1,1 @@
-![](https://giphy.com/gifs/sponge-bob-rOEvmLAxxcE1i)
+![](https://giphy.com/gifs/cartoon-rainbow-spongebob-SKGo6OYe24EBG)
